@@ -10,3 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Estou procurando aprender outras línguas 
 - 😄 Pronouns: ... Bea
 - ⚡ Fun fact: ... Adoro flores 😄
+## Hi there 👋
+
